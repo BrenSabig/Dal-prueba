@@ -1,0 +1,1 @@
+Este memorama para personas con daltonismo.
